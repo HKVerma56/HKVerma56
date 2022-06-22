@@ -2,6 +2,7 @@
 
 ### I am Harshit Kant Verma.
 
-I'm a fresher looking for any technical role in the IT industry. I have been learning Python, and how to operate in Kali Linux. Trying to learn Problem-solving sills.
+To enhance my working capacities, professional skills, business efficiencies and to serve my organization in the best  possible way with sheer determination and commitment.
+
 
 
